@@ -1,0 +1,9 @@
+# Trans/Gender Related Video Essays
+
+... which I personally like/relate to. Most of these are focused on the binary transgender experience, and even further on the binary transfemenine experience since that's where my personal interest lies.
+
+* [How To Pass As A Woman | Mia Mulder](https://www.youtube.com/watch?v=ynYsMu14BrA&t=1692s) - This is an excellent dissection of passing and how we as a community relate to it. *CW: NSFW language, brief transphobic imagery, transphobia language, dysphoria*
+* [A Video About Transitioning. [CC]](https://www.youtube.com/watch?v=3PClMhVAQWg) - An inspiringly candid short film about what it means to transition. *CW: flashing, alcohol shown and consumed, dysphoria, suicide mention, parent death mention, self-harm imagery, abuse*
+* [MEN | FTM Response to ContraPoints](https://www.youtube.com/watch?v=jSIr4T3s__s) - It's a discussion of masculinity and what that means from the transmasculine perspective. What more could you ask for? *CW: alcohol shown and consumed, dysphoria, brief NSFW language*
+* [Transphobia: An Analysis | Philosophy Tube](https://www.youtube.com/watch?v=yCxqdhZkxCo) - The only one in this list not made by an openly trans creator! Regardless, it's a great discussion about transphobia and its philosophical roots. *CW: homophobia, biphobia, transphobia, brief NSFW language, alcohol shown but not consumed*
+* [Tiffany Tumbles | ContraPoints](https://www.youtube.com/watch?v=j1dJ8whOM8E) - This video is aimed at a much more centrist audience than the others. She aims this video at her concept of the "average internet bro", so a lot of the language used may come across as politically incorrect. That being said, I believe it makes a very interesting argument about communication between trans and cis people, even if I don't agree with her conclusion. *CW: alcohol shown and consumed, transphobia, transphobic slurs, lesbophobia, islamophobia, NSFW language, dysphoria*
